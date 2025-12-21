@@ -23,4 +23,4 @@
 21. Giganta
 22. Deadshot
 23. Scarecrow
-24. Batman que rie
+24. Batman que rie jaja
